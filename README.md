@@ -50,3 +50,14 @@ No subscription. Pay per card only.
 ---
 
 [cinematiccard.com](https://cinematiccard.com) · [Agents](https://cinematiccard.com/agents) · [Creators](https://cinematiccard.com/creators)
+
+
+## What's New — May 2026
+
+- [Mother's Day cards](https://cinematiccard.com/mothers-day-cards) — falling petals, piano music, calligraphy
+- [Father's Day cards](https://cinematiccard.com/fathers-day-cards) — cinematic strings, warm amber tones
+- [Birthday cards with cash gift](https://cinematiccard.com/birthday-cards) — Signature tier, Venmo/PayPal/CashApp reveal
+- [Graduation cards](https://cinematiccard.com/graduation-cards) — golden fireworks, celebratory soundtrack
+- **First card always free** — no credit card required, no account needed
+
+[Create your free card →](https://cinematiccard.com)
