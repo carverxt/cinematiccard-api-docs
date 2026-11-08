@@ -70,7 +70,8 @@ No subscription. Pay per card only.
 
 
 
-## What's New — September 2026
+
+## What's New — November 2026
 
 - [Mother's Day cards](https://cinematiccard.com/mothers-day-cards) — falling petals, piano music, calligraphy
 - [Father's Day cards](https://cinematiccard.com/fathers-day-cards) — cinematic strings, warm amber tones
